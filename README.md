@@ -2,7 +2,8 @@
 intro post ^^
 
 star ⋆ he/they ⋆ 19 ( 07 / 30 )  ⋆ taken
-tmasc nonbinary ⋆ diagnosed gad and depression ⋆ undiagnosed autism (we're pretty sure)
+
+tmasc nonbinary ⋆ diagnosed gad and depression ⋆ undiagnosed autism ( we're pretty sure )
 
 i'm star !  my close friends may call me jay, as it is my actual name, but if we don't know each other super well, i would prefer to be called star .  c + h is okay, i don't bite !! whisper if i don't respond, i might be offtab ...
 
