@@ -10,3 +10,5 @@ i'm star !  my close friends may call me jay, as it is my actual name, but if we
  i block/hide freely .
  
 if you like my skins, feel free to ask me about how i designed certain parts of them ! as long as you ask first, i do not mind you trying to recreate. please don't copy *everything* though, i did work very hard on a lot of my ponies .
+
+p.s. always open to music recommendations . 
